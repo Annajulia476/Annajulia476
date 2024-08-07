@@ -2,7 +2,7 @@ Olá bem vindo ao meu blog
 Me chamo Anna Júlia 
 
 
-- 🔭 I’m currently working on ... atualmente estou trabalhando no alura 
+- 🔭 I’m currently working on ... trabalhando no alura 
 - 🌱 I’m currently learning ... Estou aprendendo gastronomia e alura 
 - 🤔 I’m looking for help with ...  estou procurando ajuda com alguns estudos 
 - 💬 Ask me about ... tudo que quiser 
