@@ -6,4 +6,4 @@ Estou quase me formando no ensino médio
 
 
 - 😄 Pronouns: ... feliz,animada   
-![](https://cdn.dicionariopopular.com/imagens/boo-dormindo.gif)
+![](https://media.tenor.com/pF1FyWjzHkoAAAAM/buongiorno-good-morning.gif)
