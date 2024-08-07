@@ -4,11 +4,11 @@ Me chamo Anna Júlia
 
 
 - 🔭 I’m currently working on ... trabalhando no alura 
-- 🌱 I’m currently learning ... Estou aprendendo gastronomia e alura 
-- 🤔 I’m looking for help with ...  estou procurando ajuda com alguns estudos 
+- 🌱 I’m currently learning ... Estou aprendendo gastronomia / alura etc
+- 🤔 I’m looking for help with ...  estou procurando ajuda com alguns estudos e ansiedade em algumas ocasiões 
 - 💬 Ask me about ... tudo que quiser 
 - 📫 How to reach me: ... por whatsapp ou Instagram 
 - 😄 Pronouns: ... feliz,animada 
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ...  
 -->
 ![](https://cdn.dicionariopopular.com/imagens/boo-dormindo.gif)
